@@ -1,3 +1,3 @@
 # FITNESS API
 
-![Logo](https://images4.alphacoders.com/134/1345029.png)
+![Logo](https://w0.peakpx.com/wallpaper/57/913/HD-wallpaper-gym-motivation-design-iphone-nodaysoff-power-push-samsung-saying.jpg)
